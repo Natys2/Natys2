@@ -39,5 +39,6 @@ Sou uma apaixonada por tecnologia, sempre curiosa e dedicada a aprender mais sob
 </div>
 
 ---
-
+### ⚠ ATENÇÃO: MEU PERFIL ESTA DESATUALIZADO, TENHO MUITOS PROJETOS PRIVADOS, LOGO ESTARÃO DISPONIVEIS. TODOS OS PROJETOS PUBLICOS SAO DO MEU INICIO NA AREA, POREM POSTADO COM ATRASO. 
+### FIQUE A VONTADE PARA ME SEGUIR, LOGO ESTAREI ARRUMANDO TUDO.
 > 🧘‍♀️ *"Devagar e sempre, com propósito e coração."*
